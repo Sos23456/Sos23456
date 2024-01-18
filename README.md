@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sos23456
+- 👀 I’m interested in programming.
+- 🌱 I’m currently in college getting my bachelors of computer science degree.
+- 💞️ I’m looking to collaborate on anything and everything to gain experience and prepare me for the job field.
+- ⚡ Fun fact: I served in the US marine corps.
